@@ -1,6 +1,6 @@
 
 
-The screenshots are uplaoded in jpeg format of 2nd project 
+The screenshots are uploaded here of 1st project 
 1st part ss are below
 ![tt-1](https://github.com/Swapnil-Bhatnagar/2100291530054/assets/132487560/a0a6b084-a0d6-4d67-a3d1-9b61308e7deb)
 
